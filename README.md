@@ -2,7 +2,7 @@
 - 👀 I’m interested in swagger
 - 🌱 I’m currently learning code
 - 💞️ I’m looking to collaborate on a relationship ◕‿↼
-- 📫 How to reach me @(´･_･`)
+- 📫 How to reach me @im in your walls wake up wake up wak
 
 <!---
 otistheandroid/otistheandroid is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
